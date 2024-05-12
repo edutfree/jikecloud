@@ -12,7 +12,7 @@
 
 【优惠活动】
 
-包年8折优惠代码：[B80](https://jikev44.xyz/auth/register?code=oajO)
+包年7折优惠代码：[JJ70](https://jikev44.xyz/auth/register?code=oajO)
 
 ## 特色
 
