@@ -10,7 +10,7 @@
 
 ## 极客云优惠码
 
-极客云最新优惠码618特惠包年7折优惠代码：[KK7777](https://jikev44.xyz/auth/register?code=oajO)
+极客云最新优惠码8月特惠包年7折优惠代码：[K5656](https://jikev44.xyz/auth/register?code=oajO)
 
 
 ## 极客云几次特色
