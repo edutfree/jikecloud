@@ -2,7 +2,7 @@
 
 极客云跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
-[https://jikev44.xyz](https://jikev44.xyz/auth/register?code=oajO)
+[https://jike77.net](https://jike77.net/auth/register?code=oajO)
 
 ## 简介
 
@@ -10,7 +10,7 @@
 
 ## 极客云优惠码
 
-极客云最新优惠码8月特惠包年7折优惠代码：[K5656](https://jikev44.xyz/auth/register?code=oajO)
+极客云最新优惠码8月特惠包年7折优惠代码：[JK123](https://jike77.net/auth/register?code=oajO)
 
 
 ## 极客云几次特色
