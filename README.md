@@ -10,7 +10,7 @@
 
 ## 极客云优惠码
 
-极客云最新优惠码2025新年特惠包年7折优惠代码：[JK7](https://jike77.net/auth/register?code=oajO)
+极客云最新优惠码2025新年特惠包年7折优惠代码：[JK666](https://jike77.net/auth/register?code=oajO)
 
 
 ## 极客云几次特色
